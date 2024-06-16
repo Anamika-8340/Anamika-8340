@@ -1,2 +1,3 @@
-Hi, Anamika kumari
-now, i am pursuing BCA from LNMI 
+Hi, I am Anamika kumari
+
+
